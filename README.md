@@ -6,7 +6,7 @@
 
 ## VOCê PODE ENTRAR EM COTATO COMIGO 📪
 
-email:texugobrabo@outlook.com
+email: texugobrabo@outlook.com
 
 instagram: texugo.x
 
