@@ -4,7 +4,7 @@
 - *Estou me desenvolvendo na linguagem JavaScript*
 - *Utilizo esse espaço para minha organização e comartilhamento dos meus projetos desenvolvidos*
 
-## VOCê PODE ENTRAR EM COTATO COMIGO 📪
+## VOCê PODE ENTRAR EM CONTATO COMIGO 📪
 
 email: texugobrabo@outlook.com
 
